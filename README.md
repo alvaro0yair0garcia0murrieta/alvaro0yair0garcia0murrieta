@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alvaro0yair0garcia0murrieta
-- 👀 I’m interested in ...girls
+- 👀 I’m interested in ...discovering myself
 - 🌱 I’m currently learning ...computers
 - 💞️ I’m looking to collaborate on ...life
 - 📫 How to reach me ...in your heart
